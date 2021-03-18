@@ -1,1 +1,1 @@
-github one credit
+github one credit course
